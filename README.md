@@ -18,6 +18,6 @@ A quanto pare, il Movimento 5 Stelle (o forse potremmo meglio dire l'Associazion
 
 - Il 19-11-2020 ricevo la [comunicazione di espulsione](https://github.com/fpietrosanti/Espulsione-M5S/blob/main/19_11_2020_delibera%20provvedimento%20di%20Fabio%20Pietrosanti.pdf)
 
-A seguito di questo fatto il 23-11-2020 Wired, nella persona del giornalista d'inchiesta Raffaele Angius che realizzò l'inchiesta sulla vulnerabilità di Rousseau, ha condiviso questa storia https://www.wired.it/attualita/politica/2020/10/23/rousseau-espulsione-iscritto-doppio-voto-casaleggio/ .
+A seguito di questo fatto il 23-11-2020 Wired, nella persona del giornalista d'inchiesta Raffaele Angius che realizzò l'inchiesta sulla vulnerabilità di Rousseau, ha condiviso questa storia - [Wired: Espulsione Iscritto Doppio Voto Casaleggio](https://www.wired.it/attualita/politica/2020/10/23/rousseau-espulsione-iscritto-doppio-voto-casaleggio/) .
 
 Seguiranno aggiornamenti
